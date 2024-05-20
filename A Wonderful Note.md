@@ -1,1 +1,1 @@
-For all the boys and girl!
+For all the boys and girls!
